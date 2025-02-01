@@ -1,4 +1,4 @@
-# Garena Free Fire MAX Redeem Codes for February 1, 2025 – Claim Exclusive Rewards!  
+# (Update)~Garena Free Fire MAX Redeem Codes for February 1, 2025 – Claim Exclusive Rewards!  
 
 Garena Free Fire MAX players can now unlock exclusive rewards using today’s redeem codes. These limited-time codes offer free diamonds, weapon skins, Hug Emote, and many other exciting in-game items. Read on to discover how to redeem them and enhance your gaming experience.  
 
